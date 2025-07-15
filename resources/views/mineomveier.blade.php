@@ -1,0 +1,1 @@
+ny omvei knapp og liste over mine omveier
